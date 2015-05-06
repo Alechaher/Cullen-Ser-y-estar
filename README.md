@@ -13,3 +13,5 @@ Definición de cultura: desde el pan a la divinidad.
 Lucha por el reconocimiento, deseo de apreder y poder de enseñar
 Tolerancia en el pluralismo: idea para pensar; no me involucro y mientras no te interpongas en lo mío, yo te tolero, yo no te mato. 
 La filosofía del SXX cambia con Heidegger cuando plantea que nos olvidamos de pensar en el ser como acontecer; en la novedad. 
+La cultura encuentra su sujeto, y supone un sujeto deconstruido. 
+Alteridad: el otro en cuanto otro. Igualdad y dierencia. soy siempre un otro en cuanto otro, y esa es una relación ética. Educame, pero no me violentes, no me reduzcas a una categoría que en realidad es tu representación de mí. Siempre somos guardianes de la alteridad. Potencial liberador. 
