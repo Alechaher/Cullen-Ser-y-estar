@@ -10,3 +10,6 @@ Pero lo profundo opera en nosotros.
 Fagocitación: si no me convierto me matan. Ejemplo religioso del norte. Kusch con este término se pelea con la idea de mestizaje. 
 Encajar no es educar (crítica a la educación enciclopedista y bancaria). Hay diversas formas de ser sujetos. No hay una sola forma canónica; lo demás no es barbarie. Este es el desafío de la situacionalidad. 
 Definición de cultura: desde el pan a la divinidad. 
+Lucha por el reconocimiento, deseo de apreder y poder de enseñar
+Tolerancia en el pluralismo: idea para pensar; no me involucro y mientras no te interpongas en lo mío, yo te tolero, yo no te mato. 
+La filosofía del SXX cambia con Heidegger cuando plantea que nos olvidamos de pensar en el ser como acontecer; en la novedad. 
