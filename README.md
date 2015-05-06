@@ -15,3 +15,4 @@ Tolerancia en el pluralismo: idea para pensar; no me involucro y mientras no te 
 La filosofía del SXX cambia con Heidegger cuando plantea que nos olvidamos de pensar en el ser como acontecer; en la novedad. 
 La cultura encuentra su sujeto, y supone un sujeto deconstruido. 
 Alteridad: el otro en cuanto otro. Igualdad y dierencia. soy siempre un otro en cuanto otro, y esa es una relación ética. Educame, pero no me violentes, no me reduzcas a una categoría que en realidad es tu representación de mí. Siempre somos guardianes de la alteridad. Potencial liberador. 
+Punto de partida educativo: metáfora del que llama a la puerta y el que acoge y es hospitalario...
